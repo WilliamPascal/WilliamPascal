@@ -7,6 +7,7 @@ To view practice-only repositories, see [Wilhelm-Lee](https://github.com/Wilhelm
 Any questions you have, shall be asked, if needed, via either email or email.
 
 Formal email address:  williampascal_official@outlook.com
+
 Personal email address:  william_pascal@outlook.com
 
 Current Partner(s):
