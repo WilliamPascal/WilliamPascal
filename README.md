@@ -1,16 +1,19 @@
-### Hi there 👋
+### William Pascal
 
-<!--
-**WilliamPascal/WilliamPascal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Formal account for real productions, things get serious here.
 
-Here are some ideas to get you started:
+To view practice-only repositories, see (Wilhelm-Lee)[https://github.com/Wilhelm-Lee].
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Any questions you have, shall be asked, if needed, via either email or email.
+
+Formal email address:  williampascal_official@outlook.com
+Personal email address:  william_pascal@outlook.com
+
+Current Partner(s):
+ - (Jack)[https://github.com/imJack6]
+
+Not ready for commercial operations, yet.
+
+Collaborations, however, welcomed.
+
+If I don't reply in time, it means I'm either dealing with schoolwork, or I just didn't see it.
